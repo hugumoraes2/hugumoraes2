@@ -1,1 +1,1 @@
-- 👋 Hi, I’m @hugumoraes2
+👋 Hi, I’m @hugumoraes2
